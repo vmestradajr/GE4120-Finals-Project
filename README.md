@@ -1,3 +1,5 @@
+![Vencent Jr. M. Estrada](profile.png)
+
 **About Me**
 
 **Name:** Vencent Jr. M. Estrada
